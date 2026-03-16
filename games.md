@@ -14,13 +14,13 @@ Baldurs gate, Русы против ящеров, Minecraft, Repo
 
 Astros playroom, Spider man, GTA 5, Red dead redemption, Demon's Souls, Still wakes the deep
 
-Control, Ratchet and clang: rift apart, Doom, Until dawn, Silent hill 2, Hollow Knight, God of war, Returnal, Stray, Wolfenstein, Beyond two souls
+Control, Ratchet and clang: rift apart, Doom, Until dawn, Silent hill 2, Hollow Knight, God of war, Returnal, Stray, Wolfenstein
 
- Ghost of tsushima, Valiant hearts,
+Dishonored, Beyond two souls, Ghost of tsushima, Valiant hearts,
 
 
 
-Days gone, Doom, Crysis Far cry 3,4, Tomb raider, Dishonored, Prey, Hotline, Undertale, Uncharted, Last guardian, Heavy rain, God of war, Astro bot, Outlast, Detroid, Last of us, Blodborne, 
+Days gone, Doom, Crysis Far cry 3,4, Tomb raider, Prey, Hotline, Undertale, Uncharted, Last guardian, Heavy rain, God of war, Astro bot, Outlast, Detroid, Last of us, Blodborne, Persona 5
 
 
 Watch dogs
