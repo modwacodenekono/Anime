@@ -1,9 +1,3 @@
-fahrenheit shadow of war kena dragons dogma singularity alien! hellblade divinity spec ops the wolf among us binary domain murdered life is strange sleeping dogs! gravity rush gothic outer worlds!
-
-Amnesia!, A plague tale!, Hades, Persona!, Yakudza!, Hifi rush, Disco elysium!, Lies of P, The walking dead(others), Quantum break Cuphead Silent hill
-
-
-
 Игры
 
 Cyberpanck, Dying light, Terraria
@@ -16,24 +10,34 @@ Astros playroom, Spider man, GTA 5, Red dead redemption, Demon's Souls, Still wa
 
 Control, Ratchet and clang: rift apart, Doom, Until dawn, Silent hill 2, Hollow Knight, God of war, Returnal, Stray, Wolfenstein
 
-Dishonored, Beyond two souls, Ghost of tsushima, Valiant hearts,
+Dishonored, Beyond two souls, Ghost of tsushima, Valiant hearts, Blue prince
 
 
 
-Days gone, Doom, Crysis Far cry 3,4, Tomb raider, Prey, Hotline, Undertale, Uncharted, Last guardian, Heavy rain, God of war, Astro bot, Outlast, Detroid, Last of us, Blodborne, Persona 5
+Days gone, Doom, Crysis Far cry 3,4, Tomb raider, Prey, Hotline, Undertale, Uncharted, Last guardian, Heavy rain, God of war, Astro bot, Outlast, Detroid, Last of us, Blodborne, Persona 5, Devil may cry
 
 
-Watch dogs
-Assassin creed
+
+Final fantasy, Deus ex + gog, Death stranding, Skyrim, Gravity rush, Watch dogs, Assassin creed
 
 
-Final fantasy, Deus ex + gog, Nioh, Death stranding, Skyrim
+
+СОНИ
+
 
 Infamos Order Killzone
 
-Metal gears, Resident evil!, Devil man cry!, BioShock!, Nier!, Mafia!, Metro, RDR 2, Alan wake, Dethloop!, Just cause!, Batman,
+
+
+ИНТЕРЕСНО
+
+
+Metal gear, Resident evil!, BioShock!, Nier!, Mafia!, Metro, RDR 2, Alan wake, Dethloop!, Just cause!, Batman, Braid, The Walking Dead: The Telltale Definitive Series, Quantum break, 
+
+Amnesia!, A plague tale!, Hades!, Persona!, Yakudza!, Hifi rush, Disco elysium!, Cuphead Silent hill(gog), Expedition 33, Gothic, Divinity original sin
 
 Dark souls, Sekiro, Elder ring!
+
 
 
 Пк
@@ -43,7 +47,8 @@ The farmer was replaced, Arc raiders, Dispatch!, Witcher, Fear, gta
 
 Когда-то
 
-Hitman!, System shock, Atomic heart, Max pain, Wukong, Halo
+
+Hitman!, System shock, Atomic heart, Max pain, Wukong, Halo, fahrenheit, shadow of war, kena, dragons dogma, singularity, hellblade, spec ops, the wolf among us, binary domain, murdered, life is strange, sleeping dogs!, outer worlds!, allien! 30 fps, Lies of P
 
 
 
@@ -53,7 +58,7 @@ Bully, Manhunt, GTA 4 san, LA noire
 
 
 EA
-Split fiction, It takes two, A way out, Dead space, Jedi ???, Dragon age ??? + gog, Titanfall, Mass effect 
+Split fiction, It takes two, A way out, Dead space, Jedi ???, Dragon age ??? + gog, Titanfall 2, Mass effect 
 
 
 
@@ -62,7 +67,7 @@ Zelda, Odesy
 
 
 
-The walking dead, Vanquish, Fallout, Зайчик, The elder scrolls, Postal! Danganronpa! Soma! Slay the princess!, Genstorm,
+Vanquish, Fallout, Зайчик, The elder scrolls, Postal! Danganronpa! Soma! Slay the princess!, Genstorm,
 
 
 VR
