@@ -10,7 +10,7 @@ Astros playroom, Spider man, GTA 5, Red dead redemption, Demon's Souls, Still wa
 
 Control, Ratchet and clang: rift apart, Doom, Until dawn, Silent hill 2, Hollow Knight, God of war, Returnal, Stray, Wolfenstein
 
-Dishonored, Beyond two souls, Ghost of tsushima, Valiant hearts, Blue prince
+Dishonored, Beyond two souls, Ghost of tsushima, F1, Persona 5, Doom, Valiant hearts, Blue prince
 
 
 
