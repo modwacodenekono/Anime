@@ -22,12 +22,12 @@ Control, Ratchet and clang: rift apart, Doom, Until dawn, Silent hill 2, Hollow 
 
 Dishonored, Beyond two souls, Ghost of tsushima, F1, Persona 5, Doom[2016], Tomb raider, Hotline miami, Lost crown, Gravity rush, RDR 2
 
-The farmer was replaced, Valiant hearts, Blue prince, Detroid, Crysis, Uncharted
+RDR 2, Overcooked, Stardew valley, Indica, The farmer was replaced, Valiant hearts, Blue prince, Detroid, Crysis, Uncharted
 
 
-Days gone, Prey, Undertale, Last guardian, Heavy rain, God of war, Astro bot, Outlast, Last of us, Blodborne, God of war, Devil may cry
+Days gone, Prey, Undertale, Last guardian, Heavy rain, Watch dogs, God of war, Astro bot, Outlast, Last of us, Blodborne, God of war, Devil may cry
 
-Final fantasy, Deus ex + gog, Death stranding, Skyrim, Watch dogs, Assassin creed
+Final fantasy, Deus ex + gog, Death stranding, Skyrim, Assassin creed, Kingdom come
 
 
 ## СОНИ
