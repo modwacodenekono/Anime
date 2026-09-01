@@ -22,12 +22,14 @@ Control, Ratchet and clang: rift apart, Doom, Until dawn, Silent hill 2, Hollow 
 
 Dishonored, Beyond two souls, Ghost of tsushima, F1, Persona 5, Doom[2016], Tomb raider, Hotline miami, Lost crown, Gravity rush, RDR 2
 
-RDR 2, Overcooked, Stardew valley, Indica, The farmer was replaced, RDR 2 
+RDR 2, Overcooked, Stardew valley, Indica, The farmer was replaced, RDR 2, , Crysis, 
 
-Valiant hearts, Blue prince, Detroid, Crysis, Uncharted
+Bramble, Everlasting summer, Watch dogs
+
+Valiant hearts, Blue prince, Detroid, Uncharted, Fahrenheit
 
 
-Days gone, Prey, Undertale, Last guardian, Heavy rain, Watch dogs, God of war, Astro bot, Outlast, Last of us, Blodborne, God of war, Devil may cry
+Days gone, Prey, Undertale, Last guardian, Heavy rain, God of war, Astro bot, Outlast, Last of us, Blodborne, God of war, Devil may cry
 
 Final fantasy, Deus ex + gog, Death stranding, Skyrim, Assassin creed, Kingdom come
 
@@ -53,7 +55,7 @@ Quantum break, Dispatch!, Witcher, Fear, gta, Divinity, вн-ки, Voces of the 
 
 ## Когда-то
 
-Hitman!, System shock, Atomic heart, Max pain, Wukong, Halo, fahrenheit, shadow of war, kena, dragons dogma, singularity, hellblade, spec ops, the wolf among us, binary domain, murdered, life is strange, sleeping dogs!, outer worlds!, allien! 30 fps, Lies of P, Bayonetta, Danganronpa!,
+Hitman!, System shock, Atomic heart, Max pain, Wukong, Halo, shadow of war, kena, dragons dogma, singularity, hellblade, spec ops, the wolf among us, binary domain, murdered, life is strange, sleeping dogs!, outer worlds!, allien! 30 fps, Lies of P, Bayonetta, Danganronpa!,
 
 
 ## Подписки
