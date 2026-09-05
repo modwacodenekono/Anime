@@ -22,11 +22,11 @@ Control, Ratchet and clang: rift apart, Doom, Until dawn, Silent hill 2, Hollow 
 
 Dishonored, Beyond two souls, Ghost of tsushima, F1, Persona 5, Doom[2016], Tomb raider, Hotline miami, Lost crown, Gravity rush, RDR 2
 
-RDR 2, Overcooked, Stardew valley, Indica, The farmer was replaced, RDR 2, , Crysis, 
+RDR 2, Overcooked, Stardew valley, Indica, The farmer was replaced, RDR 2, Crysis, 
 
-Bramble, Everlasting summer, Watch dogs
+Bramble, F1, Watch dogs, Blue prince, Everlasting summer
 
-Valiant hearts, Blue prince, Detroid, Uncharted, Fahrenheit
+Valiant hearts, Detroid, Uncharted, Fahrenheit
 
 
 Days gone, Prey, Undertale, Last guardian, Heavy rain, God of war, Astro bot, Outlast, Last of us, Blodborne, God of war, Devil may cry
